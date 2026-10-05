@@ -1,0 +1,1 @@
+En bon humaniste, Copernic s'essaye aussi à la traduction du grec : son premier livre, imprimé en 1509, est une traduction latine de lettres grecques dont l'auteur est un Byzantin du VIIe siècle, Théophylacte Simocatta. Copernic devient ainsi le premier Polonais à publier en Pologne une traduction d'un auteur grec.
