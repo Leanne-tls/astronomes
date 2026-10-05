@@ -1,0 +1,1 @@
+La famille de Johannes Kepler décide qu'il sera ecclésiastique, ce qui n'est pas pour lui déplaire. D'une part, sa force physique est insuffisante pour les travaux agricoles et, de l'autre, il entrevoit sans doute là l'occasion de s'éloigner de sa turbulente famille. Il est profondément croyant et le restera toute sa vie. 
